@@ -1,1 +1,0 @@
-# Magnetorquer_design
